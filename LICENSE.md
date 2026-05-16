@@ -1,4 +1,4 @@
-# 
+# rare blur sniper bot | auto-buy + multi-wallet-support offers the most advanced blur sniper bot, with auto-buy and multi-wallet-support. Ideal for professional NFT traders and
 
 
 
